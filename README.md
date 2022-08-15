@@ -4,7 +4,7 @@
 A very very Happy Independence day to All My Indian 
 
 
- ![Logo](https://i0.wp.com/technicalbandu.com/wp-content/uploads/2020/08/tenor-1.gif?fit=498%2C280&ssl=1)
+ ![Logo](https://progotirbangla.com/wp-content/uploads/2020/08/Independent-Day_2020_Homepage_banner-2a.gif)
 
 
 
